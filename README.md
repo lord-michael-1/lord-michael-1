@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lord-mike-1 (or simply Mike)
+- 👋 Hi, I’m @lord-michael-1 (or simply Michael)
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning - how to use my computer in the 21st century.  I have a lot to learn!
 - 📫 How to reach me message me on here
